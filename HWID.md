@@ -1,2 +1,2 @@
 magmaYT
-migo1337
+migo
